@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on alifpustaka.com
 - 📫 How to reach me alifpermana.studio@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: I have no girlfriends
+- ⚡ Fun fact: I fun.
 
 <!---
 alifpermana-studio/alifpermana-studio is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
